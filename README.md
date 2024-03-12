@@ -1,2 +1,2 @@
-Hey there , my name is Arpan vala
+Hey there , i am Arpan vala
 i'm intrested in writing codes and creating programs
